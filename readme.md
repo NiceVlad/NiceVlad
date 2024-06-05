@@ -8,4 +8,4 @@
 
 Если не сложно, подпишись на мой Discord
 
-https://discord.gg/PC2eq9qYv2
+https://discord.gg/ccQKczQthw
